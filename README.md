@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **manavjain2811@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/Victus/AppData/Local/Microsoft/Windows/INetCache/IE/3RFSZXHH/manav%20jain[1].pdf](file:///C:/Users/Victus/AppData/Local/Microsoft/Windows/INetCache/IE/3RFSZXHH/manav%20jain[1].pdf)
+<a href="manavresume (1).pdf"></a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
