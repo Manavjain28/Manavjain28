@@ -6,7 +6,7 @@
 - 🤝 I’m looking for help with **intership**
 
 - 📫 How to reach me **manavjain2811@gmail.com**
--     Download resume:- **manavresume (1).pdf**
+- Download resume **manavresume (1).pdf**
 
 
 <h3 align="left">Connect with me:</h3>
