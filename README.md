@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Data Structure in c++**
 
-- 🤝 I’m looking for help with **intership**
+- 🤝 I’m looking for help with **JOB**
 
 - 📫 How to reach me **manavjain2811@gmail.com**
 - Download resume **manavresume (1).pdf**
